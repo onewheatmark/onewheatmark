@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=onewheatmark&color=4a3237) (since 22/8/24)
 
+if u dont read my rentry or wtv heres my [pronouns cc](https://pronouns.cc/@onewheatmark)
+
 stamp coll =^w^=
 
 ![](https://i.ibb.co/2vPwG68/Untitled1679-20240822004305.png) ![](https://i.ibb.co/G7JsXpm/Untitled1679-20240822004252.png) ![](https://i.ibb.co/ZJTGCMv/Untitled1679-20240822004234.png) ![](https://i.ibb.co/Dkq1rMh/Untitled1679-20240822004214.png) ![](https://i.ibb.co/SV0MPN6/Untitled1679-20240822004006.png)
