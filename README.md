@@ -4,7 +4,7 @@ stamp coll =^w^=
 
 ![](https://i.ibb.co/2vPwG68/Untitled1679-20240822004305.png) ![](https://i.ibb.co/G7JsXpm/Untitled1679-20240822004252.png) ![](https://i.ibb.co/ZJTGCMv/Untitled1679-20240822004234.png) ![](https://i.ibb.co/Dkq1rMh/Untitled1679-20240822004214.png) ![](https://i.ibb.co/SV0MPN6/Untitled1679-20240822004006.png)
 
-THANK U SO MUCH [AYIN](github.com/lobocorp) FOR MAKING THESE! ^
+THANK U SO MUCH [AYIN](https://github.com/lobocorp) FOR MAKING THESE! ^
 
 ![victor](https://64.media.tumblr.com/b3e57fc129aab192837e1be2288732a7/1c3b1f4ccb9e3a1a-11/s100x200/58a75d03a93c0f1e75bc7deb67a7d0182553c135.gif) ![tawog](https://64.media.tumblr.com/7c9c76532223553632a4a419ca5f64d6/e79aabb344bfe83f-a7/s100x200/81eec9a26ad979b0d07c630238c086ce27e2a70b.gif) ![cherrycrush](https://64.media.tumblr.com/c8e745a8f9b10133514f21e468bf0ec9/62d72196e7fb1e6c-d6/s100x200/beb6fbcc360df4cda41f3f30b6bf45ff8bf12c10.png) ![csh1](https://64.media.tumblr.com/fe3ed0c6f363c3d33e170152b8eee801/7504a3c8f68a98a9-b9/s100x200/34cd5e29e555ae0c34e844fce6f666bf3edb6d99.png) ![](https://external-media.spacehey.net/media/skx8Foj0Io2mE1QyZdmKApqQ0wTpUpS6ao8cl4wl-s6Y=/https://tinyurl.com/justinbooberr)
 
