@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=onewheatmark&color=4a3237) (since 22/8/24)
 
-if u dont read my rentry or wtv heres my [pronouns cc](https://pronouns.cc/@onewheatmark)
+[pronouns](https://pronouns.cc/@onewheatmark)
 
 stamp coll =^w^=
 
