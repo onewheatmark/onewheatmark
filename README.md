@@ -7,5 +7,6 @@
 ##### <p align="center"> [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Sour+Gummy&size=15&duration=1&pause=2000&color=FECBB1&repeat=false&width=216&height=25&lines=%EF%B8%B5%E2%80%BF%E0%AD%A8%E2%99%A1%E0%AD%A7%E2%80%BF%EF%B8%B5%E2%80%BF%EF%B8%B5%E2%80%BF%E0%AD%A8%E2%99%A1%E0%AD%A7%E2%80%BF%EF%B8%B5)](https://git.io/typing-svg)![](https://komarev.com/ghpvc/?username=onewheatmark&color=754351)　 　 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Sour+Gummy&size=15&duration=1&pause=2000&color=FECBB1&repeat=false&width=216&height=25&lines=%EF%B8%B5%E2%80%BF%E0%AD%A8%E2%99%A1%E0%AD%A7%E2%80%BF%EF%B8%B5%E2%80%BF%EF%B8%B5%E2%80%BF%E0%AD%A8%E2%99%A1%E0%AD%A7%E2%80%BF%EF%B8%B5)](https://git.io/typing-svg)
 ##### <p align="center"> ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Sour+Gummy&weight=600&duration=1&pause=2000&color=FFC5AC&repeat=false&width=1000&height=20&lines=%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88%E2%94%88)
 
-![](https://i.ibb.co/sRKdj2N/oh-my-lord.gif)
+##### <p align="center"> ![bah](https://github.com/user-attachments/assets/f0523f5e-46a1-4924-b3f3-eb4464c76110)
+
 
